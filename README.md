@@ -1,4 +1,4 @@
-# 🏄🏽‍♂️ Opa! Eu sou o Matheus
+# Opa! Eu sou o Matheus
 
 ## Sobre mim
 
